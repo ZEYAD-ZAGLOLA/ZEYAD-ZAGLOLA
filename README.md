@@ -2,7 +2,7 @@
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning programing language
 - 💞️ I’m looking to collaborate on github company
-- 📫 How to reach me  my email :zeyad zaglola670@gamil.com ,zeyadzaglola670@outlook.com
+- 📫 How to reach me  my email :zeyadzaglola670@gamil.com ,zeyadzaglola670@outlook.com
 - 😄 Pronouns: ZEYAD ZAGLOLA 
 - ⚡ Fun fact :  i prefer programing
 <!---
